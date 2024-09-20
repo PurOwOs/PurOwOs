@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @PurOwOs
 - 👀 I’m interested in... ... i dont even know myself to be honest :3
-- 🌱 I’m currently learning usless things
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me? you can't do that. That is the point
+- 🌱 I’m currently learning usless shit and all.... some of it is fun tho
+- 💞️ I’m looking to collaborate on *YOUR MOTHER*
+- 📫 How to reach me? you can't. That is the point.
 - 😄 Pronouns: why the F### do you care...?
 - ⚡ Fun fact: im furry
 
